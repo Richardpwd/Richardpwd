@@ -45,7 +45,9 @@ Tenho 18 anos e estou trilhando meu caminho no desenvolvimento de software, com 
 
 ## 🤝 Contato
 
-richardsos2122@gmail.com
+e-mail: richardsos2122@gmail.com
+instagram: _richardpwd
+
 
 ---
 
